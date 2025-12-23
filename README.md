@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ashok000777
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...katariashokkumar8323@gmail.com
+- 📫 How to reach me -katariashokkumar8323@gmail.com
 
 
 <!---
